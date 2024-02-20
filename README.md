@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @MarionCouturier
+- 👀 I’m interested in Graphic Design - Typography - Illustration and Photography 👀
+- 💞️ I’m looking to collaborate on spreading open source visuals for causes I hold dear 💞️
+- 📫 How to reach me on instagram @marionmcouturier
+- 😄 Pronouns: she/her
